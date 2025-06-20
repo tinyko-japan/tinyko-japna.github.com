@@ -1,0 +1,1 @@
+# tinyko-japna.github.com
